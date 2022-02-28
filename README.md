@@ -28,7 +28,7 @@ RjCode border style.<br>
   <b>Cofrinho:</b><br><br>
   ![alt text](https://i.imgur.com/zEhF8K7.png)<br><br>
   <b>Conta:</b><br><br>
-  ![alt text](https://i.imgur.com/m4SIQNa.png)<br><br>
+  ![alt text](https://i.imgur.com/Kls1u5K.png)<br><br>
   <b>Sobre:</b><br><br>
   ![alt text](https://i.imgur.com/fSyNl0b.png)<br><br>
 
